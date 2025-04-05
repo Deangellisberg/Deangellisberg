@@ -1,4 +1,4 @@
-### Olá! Eu sou o Deangellis Berg
+### Olá! Eu sou o Deangellis Silva
 ---
 
 ## 💼 Em busca de oportunidades como:
